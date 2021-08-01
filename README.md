@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Wumpis601
+- 👀 I’m interested in ... Minecraft?
+- 🌱 I’m currently learning ... Drawing?
+- 💞️ I’m looking to collaborate on ... Nothing?
+- 📫 How to reach me ... Discord?
